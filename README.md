@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **goswamijay07@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1N-DaSY9emc6ormfa55Ga5pi4PMW929j0/view?usp=share_link](https://drive.google.com/file/d/1N-DaSY9emc6ormfa55Ga5pi4PMW929j0/view?usp=share_link)
+- 📄 Know about my experiences [click here](https://drive.google.com/file/d/1N-DaSY9emc6ormfa55Ga5pi4PMW929j0/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
